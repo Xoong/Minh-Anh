@@ -1,2 +1,0 @@
-# Minh-Anh
-Xooong
